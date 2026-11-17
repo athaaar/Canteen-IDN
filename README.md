@@ -1,1 +1,1 @@
-Berikut ini adalah proyek colaborasi oleh Athar
+Berikut ini adalah proyek kolaborasi oleh Athar
